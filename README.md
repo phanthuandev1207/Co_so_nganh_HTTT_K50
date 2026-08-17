@@ -1,1 +1,1 @@
-# C-s-ng-nh-H-Th-ng-Th-ng-Tin-K50
+Các slide bài giảng hệ chất lượng cao khoa Hệ Thống Thông Tin K50 Trường CNTT&TT
